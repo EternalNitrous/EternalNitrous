@@ -9,7 +9,7 @@
      u‡¯“³!!!!¦ººº!ls                             Langauges.Real: English, French
      u‡~¯!!!!!!!!!!ls                             Languages.Programming: HTML, CSS, JS, Tailwind
      u‡~¯!!!!~”!!!!ls                             
-     u‡~¯!!!!!!!!!!löò¼                           Hobbies.Software: Making Websites, Jailbreaking iOS & ChromeOS, Breaking OSe
+     u‡~¯!!!!!!!!!!löò¼                           Hobbies.Software: Making Websites, Jailbreaking iOS & ChromeOS, Breaking OSes
      u‡—“³!!!!!!!!!!|ö‰u                  uuƒ     Hobbies.Hardware: Building & Upgrading PCs
      uòò(³!!!!!!!!!!|lîö‰½              ‡¼òòu      
      t‡ò(³“^!!!!!!!!!!•+ƒòssss‰     zòsssòò¼¤     Github Stats
